@@ -5,4 +5,4 @@
 - 🌱 I’m currently learning C#
 - 👯 I’m looking to collaborate on Nobody😆
 - 😄 Pronouns: Exploiting
-- ⚡ Fun fact: im a **FURRY** 0_o
+- ⚡ Fun fact: im a **FURRY** 0_o0_o0_o0_o0_o0_o0_o0_o0_o0_o0_o0_o0_o0_o0_o
